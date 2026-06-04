@@ -1,0 +1,1 @@
+# aura_3d_assets
